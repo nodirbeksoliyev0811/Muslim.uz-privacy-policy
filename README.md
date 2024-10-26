@@ -1,4 +1,4 @@
-Privacy Policy  
+Muslim.uz Privacy Policy  
 ----------------
 
 ### Introduction  
